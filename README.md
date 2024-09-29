@@ -7,7 +7,7 @@
 - ⚡ Fun fact: ...
 - iam currently doing fashion designer
 - iam currently into fashion
-
+i like to learn and do activties  and learn about create reading
 <!---
 niloferm35/niloferm35 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
